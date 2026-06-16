@@ -1,4 +1,4 @@
-# Projeto Stelas-2026 
+# Projeto Stelas-2026  
 
 ## Projeto-https://codepen.io/Mariana-De-Faria/pen/VYPmGrP
 
